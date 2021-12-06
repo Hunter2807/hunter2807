@@ -8,6 +8,6 @@
 
 ### • You can find me chilling in the discord.py channel of the Python server
 
-### • Be sure to add me on Discord `нυηтєя#2809` or `493451846543998977` (just in case your mobile/laptop hates that font)
+### • Be sure to add me on Discord `нυηтєя#3773` or `493451846543998977` (just in case your mobile/laptop hates that font)
 
 [![Discord Bots](https://top.gg/api/widget/800978542225391656.svg)](https://top.gg/bot/800978542225391656)
